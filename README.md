@@ -1,4 +1,8 @@
-<h1 align="center">NUDE METHOD</h1>
+<h1 align="center">Başlık</h1>
+
+<p align="center">
+  <img src="https://pbs.twimg.com/ext_tw_video_thumb/1807138498240983040/pu/img/0n6ivbk09T68TThO.jpg" alt="Resim Açıklaması">
+</p>
 
 ## Uyarı! 
 
