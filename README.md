@@ -1,4 +1,4 @@
-<h1 align="center">Başlık</h1>
+<h1 align="center">NUDE METHOD</h1>
 
 
 
