@@ -21,7 +21,7 @@ Unutmayın, her bireyin sınırları farklıdır ve herkesin rızasına saygı d
 
 Bu method'daki bilgilerin kesinlikle tasvip edilemez olduğunu ve bu tür davranışlardan kaçınmanız gerektiğini bir kez daha vurgulamak isterim. Sağlıklı ve saygılı ilişkiler kurmak için yukarıdaki önerilere uymanız çok daha önemlidir.
 
-## Nude İsteme Aşaması [Yöntemler]
+## Nude İsteme Aşaması
 
 Bu method, kadınlardan nude isteme konusundaki farklı yaklaşımları ve taktikleri ele almaktadır. Ancak, bu yaklaşımların çoğunun etik olmadığını ve hatta yasa dışı olabileceğini unutmamak önemlidir. Bu nedenle, bu method'daki bilgileri kullanırken çok dikkatli olunmalı ve her zaman karşıdaki kişinin rızası gözetilmelidir.
 
