@@ -1,0 +1,1 @@
+# snap-nude-alma-method
