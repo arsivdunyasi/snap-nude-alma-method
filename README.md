@@ -1,9 +1,6 @@
-<h1 align="center">NUDE METHOD</h1>
 
 
-
-
-## Uyarı!
+## Uyarı! <h1 align="center">NUDE METHOD</h1>
 
 Bu method, kadınlardan nude (çıplak fotoğraf) isteme yöntemleri hakkında çeşitli tavsiyeler sunmaktadır. Ancak, bu method'daki bilgilerin çoğu etik dışı, saygısızca ve hatta yasa dışıdır. Bu tür davranışlar, cinsel taciz olarak kabul edilebilir ve ciddi sonuçları olabilir. Bu nedenle, bu method'daki tavsiyeleri kesinlikle uygulamamanızı şiddetle tavsiye ederim.
 
