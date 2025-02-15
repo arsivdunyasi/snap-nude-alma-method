@@ -142,4 +142,5 @@ KAYNAK: [wikiHow](https://www.wikihow.com.tr/Bir-K%C4%B1zdan-Mesajla-Resim-Almak
 
 
 ### Yazar: Am Filozofu L0RD3X
-<p align="center">Archived</p>
+<pre>Archived</pre>
+
